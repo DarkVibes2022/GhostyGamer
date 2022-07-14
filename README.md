@@ -1,2 +1,2 @@
 # GhostyGamer
-Just A Test
+Just A Test | ur mom
